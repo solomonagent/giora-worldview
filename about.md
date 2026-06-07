@@ -20,7 +20,7 @@ He married **Ilana** on **22 February 1987** — nearly 39 years and still the c
 
 Two children, both married:
 
-**Ricki** — his son, 35, married to **Asha**. The next generation of the Friede name carrying forward.
+**Ricki** — his son, 35, married to **Asha**. No kids yet.
 
 **Britt** — his daughter, 34, married to **Josh**, with three boys of their own: aged 5, 3, and 4 months. Three grandchildren who already have a grandfather who will sit them down one day and explain why honest money matters and why every person carries a divine spark. They're lucky kids, even if they don't know it yet.
 
